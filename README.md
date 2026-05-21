@@ -1,1 +1,0 @@
-# Githubpages-KI-im-studienalltag
